@@ -11,6 +11,8 @@
 
 - 📫 How to reach me **steveo732@gmail.com**
 
+- Check out my portfolio [stevenrej.com](https://stevenrej.com/)
+
 <br>
 
 <h3 align="left">Connect with me:</h3>
